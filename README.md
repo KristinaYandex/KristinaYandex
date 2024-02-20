@@ -20,8 +20,8 @@
 </a>
 
 <a href="mailto:mramornayaa@yandex.ru">
-  - <img src="https://github.com/KristinaYandex/KristinaYandex/assets/115872997/207fc24c-8cd2-4b09-a86f-ba60c158c376" width="30" height="30"> 
-  - mramornayaa@yandex.ru
+  <img src="https://github.com/KristinaYandex/KristinaYandex/assets/115872997/207fc24c-8cd2-4b09-a86f-ba60c158c376" width="30" height="30"> 
+  mramornayaa@yandex.ru
 </a> 
 
 
