@@ -11,7 +11,7 @@
 ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/d1783c60-d17f-44e5-9bf5-c32140a4c430) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/c2523d31-5473-4ac0-9c83-74be0b518048) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/d991a73d-f797-4783-8f8c-e9dcb83a3596) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b5f62301-7e22-4b7f-b7d2-a1211d7e1cbc)
 
 
-![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/2aa21e9c-8869-41e7-ad43-5173ca9f1cdb) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/c43a9b9e-2251-4bd7-bf67-96ada86126c9) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/0fa31a8c-6661-4b09-a6ea-3de8c38256e2) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/d477f32e-02c0-4041-9d74-d0990f6eb587)
+![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/4bdee25d-6812-4bca-a6b2-96d42d968344) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/c43a9b9e-2251-4bd7-bf67-96ada86126c9) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/0fa31a8c-6661-4b09-a6ea-3de8c38256e2) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/d477f32e-02c0-4041-9d74-d0990f6eb587)
 
 
 
