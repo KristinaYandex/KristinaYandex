@@ -16,7 +16,7 @@
  
 
 <a href="[https://htmlacademy.ru](https://t.me/@KristinaU1993)">
-  <img src="![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b7dda97a-bef4-4d51-b3c0-bdadd53e0f85)">
+  <img src="[![image]()](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b7dda97a-bef4-4d51-b3c0-bdadd53e0f85)https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b7dda97a-bef4-4d51-b3c0-bdadd53e0f85">
 </a>
 
 
