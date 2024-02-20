@@ -19,7 +19,7 @@
   <img src="https://github.com/KristinaYandex/KristinaYandex/assets/115872997/94e7a0e9-5d8d-48c8-ba54-f172b362ac5c" width="90" height="30">
 </a>
 
-<a href="mramornayaa@yandex.ru">
+<a href="https://mail.yandex.ru/mramornayaa@yandex.ru">
   <img src="https://github.com/KristinaYandex/KristinaYandex/assets/115872997/207fc24c-8cd2-4b09-a86f-ba60c158c376" width="90" height="30">
 </a>
 
