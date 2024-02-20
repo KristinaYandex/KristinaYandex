@@ -15,10 +15,14 @@
 ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/c43a9b9e-2251-4bd7-bf67-96ada86126c9) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/0fa31a8c-6661-4b09-a6ea-3de8c38256e2) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/d477f32e-02c0-4041-9d74-d0990f6eb587) ![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/a1b72909-013e-457b-b586-c326f7eaff98)
 
 
-!https://t.me/@KristinaU1993[image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b7dda97a-bef4-4d51-b3c0-bdadd53e0f85) 
+![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/b7dda97a-bef4-4d51-b3c0-bdadd53e0f85) 
 
 
+https://t.me/@KristinaU1993
 
+<a href="https://htmlacademy.ru">
+  <img src="images/cat.jpg" width="600" height="200" width="600">
+</a>
 
 
 
