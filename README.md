@@ -16,7 +16,7 @@
  
 
 <a href="https://t.me/@KristinaU1993">
-  <img src="![image](https://github.com/KristinaYandex/KristinaYandex/assets/115872997/94e7a0e9-5d8d-48c8-ba54-f172b362ac5c)" width="600" height="200" width="600">
+  <img src="https://github.com/KristinaYandex/KristinaYandex/assets/115872997/94e7a0e9-5d8d-48c8-ba54-f172b362ac5c" width="600" height="200" width="600">
 </a>
 
 
